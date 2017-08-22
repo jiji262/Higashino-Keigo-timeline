@@ -1,3 +1,10 @@
+
+图文版：
+https://mp.weixin.qq.com/s?timestamp=1503380652&src=3&ver=1&signature=mvfkAQ8baCCDHmu6hgjwKU3f*hByqwjjQjumv9l0ijf5DlMbvVyRWbDnb-E0-oLybPeozteRTRTHn8AKP8m7zcvSy5gosCqYczXerTvDUhkI2cYZ3vUhGKh*UVzpkskdEqo0o7D3ql3f055UlZv6bSNJ5CNWCPmQkza6*Q03wcA=
+
+原文：
+
+
 每次让人推荐书籍，东野圭吾都成为被推荐最多的作者，在机场或者新华书店转转，也会发现，在热门畅销书里，肯定有且不止有一本东野圭吾的书。其作品的流行和火爆程度可见一斑。
 
 但是貌似目前市面上没有东野圭吾全集之类的东西，可能因为他还比较年轻，还不断的有新作品出来吧！国内有南海出版公司、北京联合出版社、现代出版社等出版社出版过其作品，但是南海的貌似最多。
